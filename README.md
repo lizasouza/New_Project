@@ -19,3 +19,4 @@ new issue
 mkoo
 never give up
 God is Good
+God is merciful
