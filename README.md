@@ -25,6 +25,7 @@ Okay
 \kkk
 God is merciful
 somewhere
+where am I stuckkkk
 still getting there
 okay
 somethings still missing
